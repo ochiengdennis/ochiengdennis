@@ -1,8 +1,8 @@
  Hi, I’m @ochiengdennis
  I’m interested in data analysis,card system analysis
- I’m currently learning Oracle clcoud infrastructure foundations certification.
+ I’m currently learning Oracle clcoud infrastructure AI proffesional certifications and Data Science.
  I’m looking to collaborate on any ideas that reasonate around telecommunication enginering.
- How to reach me on tell 0774953839 facebook on denis onyango
+ How to reach me on tell 0799491852 facebook on denis onyango
  
 
 <!---
